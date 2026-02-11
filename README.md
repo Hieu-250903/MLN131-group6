@@ -1,3 +1,3 @@
 
 
-Vô sản hãy đoàn kết lại
+Vô sản thêd giới hãy đoàn kết lại
